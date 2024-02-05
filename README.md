@@ -11,5 +11,5 @@
 - Product Management Intern at MLSE </br></br>
 Check out my [resume](https://media.licdn.com/dms/image/D562DAQHx44De3B5XPA/profile-treasury-document-images_800/1/1705025760558?e=1706140800&v=beta&t=QOEimLBHEhQSC_Fjg2eUNNJ1KXNWhyDDyx9f-8z8Vcw) to learn more about my involvement!
 
-📬 Let's chat! Feel free to reach out through email at danielrjoseph@hotmail.ca, and I would be happy to expand on any of my experiences!
+📬 Let's chat! Feel free to reach out through email at danielrjoseph@hotmail.com, and I would be happy to expand on any of my experiences!
 
