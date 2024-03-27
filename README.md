@@ -6,7 +6,7 @@
 
 📖 Recently I have worked as a:
 - Product Analyst Intern at Klue
-- Product Management Intern at Equitable Bank
+- Product Analyst Intern at Equitable Bank
 - Product Management Intern at Interac
 - Product Management Intern at MLSE </br></br>
 Check out my [resume](/Daniel_Joseph_ResumePM.pdf) to learn more about my involvement!
