@@ -6,7 +6,7 @@
 
 📖 Recently I have worked as a:
 - Product Analyst Intern at Klue
-- Product Analyst Intern at Equitable Bank
+- Product Management Intern at Equitable Bank
 - Product Management Intern at Interac
 - Product Management Intern at MLSE
 
