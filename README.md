@@ -9,7 +9,7 @@
 - Product Analyst Intern at Equitable Bank
 - Product Management Intern at Interac
 - Product Management Intern at MLSE </br></br>
-Check out my [resume](/Daniel_Joseph_ResumePM.pdf) to learn more about my involvement!
+Check out my [resume](https://docs.google.com/document/d/1lkP1_-_mYsMwxHngYhqTFU7fLMq6x-PTl9LOQzCPD78/edit?usp=sharing) to learn more about my involvement!
 
 📬 Let's chat! Feel free to reach out through email at danielrjoseph@hotmail.com, and I would be happy to expand on any of my experiences!
 
