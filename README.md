@@ -10,4 +10,4 @@
 - Product Management Intern at Interac
 - Product Management Intern at MLSE
 
-🌐 To learn more about me, check out my website at danielrjoseph.ca!
+🌐 To learn more about me, check out my website at www.danielrjoseph.ca!
