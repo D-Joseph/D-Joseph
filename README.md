@@ -5,7 +5,7 @@
 🌳 I love using technology in interesting ways to solve unique problems. Some of my favorite projects are highlighted below!
 
 📖 Recently I have worked as a:
-- Product Analyst Intern at Klue
+- Product Engineer Intern at Klue
 - Product Management Intern at Equitable Bank
 - Product Management Intern at Interac
 - Product Management Intern at MLSE
