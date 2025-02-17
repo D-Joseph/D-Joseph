@@ -1,4 +1,4 @@
-### <p align="center"> 👋🏽 Welcome to my page! I am Daniel, an aspiring Product Manager. </p>
+### <p align="center"> 👋🏽 Welcome to my page! I am Daniel, an aspiring Product Engineer. </p>
 
 📚 I am a Computer Engineering student in the Innovation & Entrepreneurship stream at Queen's University graduating in 2025.
 
